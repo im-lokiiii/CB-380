@@ -13,7 +13,7 @@ But, the question is why one had to do those things when we can do those for the
 so we decided to do all of that on behalf of you.
 traWELL provides you tour PACKAGES.
 Start and plan your whole trip with tapping of few buttons.
-traWELL arranges you with the industry class comfortable vehicle / Accommodation, food and travel guide.
+traWELL arranges you with the industry class comfortable vehicle , Accommodation, food and travel guide.
 traWELL will stand out for its affordable prices.
 traWELL also provides the beloved customers with amazing discounts with the help of coupons on the best visit places in the particular season.
 traWELL will make you confusion free by suggesting best places for the season , best places to visit based on the theme of tour your planning for such like pilgrim spots , beaches etc.
