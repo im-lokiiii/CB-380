@@ -16,5 +16,5 @@ traWELL also provides the beloved customers with amazing discounts with the help
 traWELL will make you confusion free by suggesting best places for the season , best places to visit based on the theme of tour your planning for such like pilgrim spots , beaches etc.
 We are thinking of solving all the problems people are facing in this modern age of travelling.
 We are working on discovering more problems and finding best solutions to them
-More features will definitely be added sson.
+More features will definitely be added soon.
 "traWELL" : Well planned Trip is to remembered for ages . Trust us , we plan it for you. Lets spend some memorable time on a precious tour.
